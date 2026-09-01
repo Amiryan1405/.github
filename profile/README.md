@@ -1,31 +1,107 @@
-# 🚀 About Amir Gamer 2026 Corporation
+# 👑 **AMIRIAN CORPORATION 2026**
 
-Welcome to **Amir Gamer 2026 Corporation** 🎮⚡
+### **Corporate Profile & Company Overview**
 
-Where gaming meets innovation.
+## **About Amirian Corporation 2026**
 
-We are not just a gaming company — we are building a futuristic world where players, creators, and technology come together. 🌎🔥
+**Amirian Corporation 2026** is a growing and forward-looking company focused on **gaming, technology, digital innovation, vehicle development, and industrial concepts**.
 
-🎮 **Game Division**
-We create exciting gaming experiences, powerful worlds, and unforgettable adventures for players everywhere.
+Our organization is committed to transforming innovative ideas into structured projects and developing solutions that combine **creativity, technology, performance, and long-term vision**.
 
-🚗 **Vehicle Division**
-Designing and building advanced machines, vehicles, and futuristic technology to shape the next generation of transportation.
-
-🛢️ **Energy & Industry Division**
-Developing powerful industrial systems, including modern oil pipelines and large-scale engineering projects.
-
-💻 **Technology Division**
-Creating digital solutions, software, and new ideas that push the limits of creativity.
+We aim to establish a professional environment in which talented individuals, developers, designers, engineers, and creators can collaborate, develop their skills, and contribute to ambitious projects.
 
 ---
 
-## 🌟 Our Mission
+## **🎮 Game Division**
 
-Our mission is simple:
+The **Game Division** is dedicated to the development of interactive entertainment, digital gaming experiences, virtual environments, and innovative game concepts.
 
-**Create. Innovate. Inspire.**
+Our objective is to create high-quality projects that provide engaging experiences for players while continuously exploring new technologies, creative concepts, and modern approaches to game development.
 
-We believe the future belongs to those who dream bigger, build smarter, and never stop improving. 🚀
+---
 
-Join **Amir Gamer 2026 Corporation** and become part of a new generation of gaming, technology, and innovation. 🔥🎮
+## **🚗 Vehicle Division**
+
+The **Vehicle Division** focuses on the conceptual development and design of modern vehicles, advanced transportation ideas, innovative machines, and future-oriented mobility concepts.
+
+This division is committed to exploring new approaches to vehicle design, technology, functionality, and performance.
+
+---
+
+## **🛢️ Energy & Industry Division**
+
+The **Energy & Industry Division** focuses on industrial concepts, infrastructure development, engineering projects, energy-related systems, and large-scale technological ideas.
+
+Our long-term objective is to explore innovative industrial solutions and contribute to the development of modern and efficient systems.
+
+---
+
+## **💻 Technology Division**
+
+The **Technology Division** develops software, digital solutions, technological concepts, and innovative systems designed to support both internal projects and future products.
+
+We focus on combining technical capability with creative problem-solving to develop practical, modern, and scalable solutions.
+
+---
+
+## **👥 Professional Environment**
+
+Amirian Corporation 2026 seeks to maintain a professional, respectful, and development-oriented working environment.
+
+Employees and collaborators are expected to demonstrate:
+
+**Professionalism • Responsibility • Creativity • Teamwork • Commitment • Continuous Development**
+
+We believe sustainable growth is built through capable people, effective teamwork, continuous learning, and responsible management.
+
+---
+
+## **💰 Employee Salary**
+
+Employees of **Amirian Corporation 2026** receive a monthly salary of:
+
+### **5,000,000 Tomans** 💵
+
+Salary and employment conditions may vary according to the employee's position, responsibilities, experience, performance, and applicable company policies.
+
+---
+
+## **🌟 Corporate Mission**
+
+Our mission is to develop innovative projects by combining:
+
+**Technology + Creativity + Professionalism + Innovation**
+
+We are committed to creating an organization capable of developing ambitious ideas into structured and meaningful projects.
+
+---
+
+## **🚀 Corporate Vision**
+
+Our vision is to establish **Amirian Corporation 2026** as a recognized and innovative organization across the fields of gaming, technology, digital development, engineering concepts, and future-oriented industries.
+
+We aim to continuously improve our standards, expand our capabilities, and develop projects that represent quality, innovation, and professional excellence.
+
+---
+
+# **OUR PRINCIPLES**
+
+**CREATE.**
+Transform ideas into meaningful projects.
+
+**INNOVATE.**
+Explore new technologies and better solutions.
+
+**DEVELOP.**
+Invest in skills, people, and continuous improvement.
+
+**LEAD.**
+Build with responsibility, professionalism, and vision.
+
+---
+
+### **AMIRIAN CORPORATION 2026**
+
+**Gaming • Technology • Innovation • Engineering • Future**
+
+**Building Ideas. Developing Technology. Creating the Future.**
