@@ -2,7 +2,8 @@
   <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=700&size=38&duration=5000&pause=999999&color=FFD700&center=true&vCenter=true&repeat=false&width=950&height=90&lines=Welcome+to+Amiryan+Trans+Company" alt="Welcome to Amiryan Trans Company">
 </p>
 
-# 👑 **AMIRIAN CORPORATION 2026**
+
+## 👑 **AMIRIAN CORPORATION 2026**
 
 ### **Corporate Profile & Company Overview**
 
