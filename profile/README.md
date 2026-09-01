@@ -1,4 +1,6 @@
-
+<p align="center">
+  <img src="./amiryan-trans-group-logo.gif" width="500" alt="AMIRYAN TRANS CO.">
+</p>
 
 # 👑 **AMIRIAN CORPORATION 2026**
 
