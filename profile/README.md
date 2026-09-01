@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="./amiryan-trans-group-logo.gif" width="500" alt="AMIRYAN TRANS CO.">
+  <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=700&size=32&pause=1000&color=D4AF37&center=true&vCenter=true&width=850&lines=Welcome+to+Amiryan+Trans+Company" alt="Welcome to Amiryan Trans Company">
 </p>
 
 # 👑 **AMIRIAN CORPORATION 2026**
